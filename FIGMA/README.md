@@ -2,4 +2,8 @@
 
 ![](17090034%20Dendy%20Jordan%20Wijaya%206B/HomeScreen.png)
 
-#### 17090034 Dendy Jordan Wijaya 6B
+#### Nama : Dendy Jordan Wijaya
+
+#### NIM  : 17090034
+
+#### Kelas : 6B
